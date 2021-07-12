@@ -1,4 +1,4 @@
-# Lasanha :
+# LASANHA DE FRANGO COM QUEIJO :
 
 ## Ingreditente
 - 1 peito de frango
